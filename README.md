@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ECScorpion
+- 👀 I’m interested in Watch Dogs Legion
+- 🌱 I’m currently learning nothing useful
+- 💞️ I’m looking to collaborate on Blooket Hacks
+- 📫 How to reach me @jacksonjwhitney@gmail.com
